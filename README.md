@@ -1,2 +1,3 @@
-k xa bro -- Laleet
-Thikai cha bro -- Aashish
+
+k xa bro
+Mero thik cha bro - Alien
